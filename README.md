@@ -1,1 +1,0 @@
-# cognitive-dissident.github.io
